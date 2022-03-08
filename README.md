@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @James-smith2
 - 🎯 I’m interested in Gaming, CyberSecurity and Graphic Designer.
-- 👨‍🎓 I’m currently learning IT(Information Technology)
+- 👨‍🎓 I’m currently a student at IT(Information Technology)
 - 🌐 How to reach me: visit my website= bishalbhandari1.com.np
 
 <!---
